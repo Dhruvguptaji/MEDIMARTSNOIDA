@@ -40,4 +40,4 @@ Get your website live within 5–7 working days!
 Contact us now and bring your pharmacy online with MEDIMARTSNOIDA – The Smart Way to Sell Medicines Online.
 
 📞 Call / WhatsApp:9910620109
-💵 Price: Only ₹9,999/-
+💵 Price: Only ₹9,999/- {negotiable}
